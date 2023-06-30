@@ -1,3 +1,3 @@
 # Magic-Indicator
 
-<img alt="Coding" src="https://twitter.com/AsherShirazi/status/1674877939647668224/photo/1">
+<img alt="Coding" src="https://drive.google.com/file/d/1xjQEoiAvVze7GHqBSBj9kJFKSPFHMXDY/view?usp=drive_link">
